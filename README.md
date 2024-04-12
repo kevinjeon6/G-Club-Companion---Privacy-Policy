@@ -1,1 +1,1 @@
-# G-Club-Companion---Privacy-Policy
+# G-Club-Companion-Privacy-Policy
